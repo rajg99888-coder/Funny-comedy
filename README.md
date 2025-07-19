@@ -1,2 +1,7 @@
-# Funny-comedy
-Free cartoon
+
+
+जो भी उस कब्र के पास से गुजरता, रुक जाता।
+गुड़िया की कहानी सुनता और चुपचाप फूल रखकर चला जाता।
+गाँव के लोग कहते:
+"सलामत की गुड़िया अब हमारे गाँव की फरिश्ता है…"
+FIR gaon wale vahan se nikalte the aur use ladki ko bahut
